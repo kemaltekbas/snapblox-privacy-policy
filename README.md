@@ -1,0 +1,1 @@
+# snapblox-privacy-policy
